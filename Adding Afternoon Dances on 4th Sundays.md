@@ -1,3 +1,4 @@
+# Adding Afternoon Dances on 4th Sundays
 In 2025, we will add afternoon contra dances on 4th Sundays. We're excited about this idea for a few reasons:
 - more dancing!
 - dancers who can't attend sunday evening dances might be able to join us in the afternoon
