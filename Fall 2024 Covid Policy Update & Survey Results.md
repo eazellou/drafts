@@ -1,4 +1,4 @@
-# Fall 2024 Covid Policy Update and Survey Results
+# 2025 Covid Policy Update and Survey Results
 This fall [we ran a survey about covid precautions](https://blog.bidadance.org/2024/08/fall-2024-covid-survey.html), so that we can keep our policies in line with our community's needs as much as possible. As it has been [two years since our previous survey](https://blog.bidadance.org/2022/11/covid-survey-results.html), we wanted current information to back our decisions.
 ## Updated Policy
 In short, our policy will not be changing much. We will continue to alternate mask-required and mask-optional evening dances: 1st Sundays will still be mask-optional, and 3rd Sundays will still be mask-required.
