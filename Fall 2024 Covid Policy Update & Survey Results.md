@@ -1,3 +1,4 @@
+# Fall 2024 Covid Policy Update and Survey Results
 This fall [we ran a survey about covid precautions](https://blog.bidadance.org/2024/08/fall-2024-covid-survey.html), so that we can keep our policies in line with our community's needs as much as possible. As it has been [two years since our previous survey](https://blog.bidadance.org/2022/11/covid-survey-results.html), we wanted current information to back our decisions.
 ## Updated Policy
 In short, our policy will not be changing much. We will continue to alternate mask-required and mask-optional evening dances: 1st Sundays will still be mask-optional, and 3rd Sundays will still be mask-required.
@@ -11,15 +12,12 @@ We got 130 responses, and manually input the paper responses into the digital fo
 As you might expect given our choice to continue alternating mask-required and mask-optional, our community continues to be very split. There looks to be a contingent of folks on both sides who only attend the dances with their preferred policy. While the mask-optional-preferring group seems to be slightly larger, the mask-required group is significant as well. This lines up with [our attendance data](https://www.bidadance.org/graphs), which doesn't seem to have a noticeable change depending on mask policy.
 
 In the interest of transparency, here are the survey results. The wide range of text answers really brings color to the responses, showing how vastly different our community members' experiences and needs are.
- 
- ![[Pasted image 20241119163815.png]]
 
-  
+![Current Attendance](Pasted%20image%2020241119163815.png)
 
-![[Pasted image 20241119163831.png]]
+![Change With Mask Required](Pasted%20image%2020241119163831.png)
 
-  
-![[Pasted image 20241119163843.png]]
+![Change With Mask Optional](Pasted%20image%2020241119163843.png)
 
 **We're interested in more than just attendance. If we changed any of the above, how would this affect your safety, comfort, and/or enjoyment?**
 - It is neither comfortable nor enjoyable to wear a mask. After I wear a mask for about an hour dancing becomes a physical challenge. I get exercise, but it isn't enjoyable. Moreover the social aspect is ruined. I can't see facial expressions.. At times, I don't even know with whom I am dancing. it is almost like dancing with an automaton.
