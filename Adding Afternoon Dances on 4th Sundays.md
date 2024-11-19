@@ -23,6 +23,7 @@ These new afternoon dances will alternate mask-required and mask-optional per mo
 | February | Optional    |
 | March    | Required    |
 | June     | Optional    |
+
 [More info on our covid policy decision for 2025 is available here](TODO: link to covid post).
 ## Volunteers Needed!
 To make this a sustainable change, we will need volunteer support from our community. If you'd like to be more involved with BIDA, check out [our Get Involved page here](https://www.bidadance.org/get-involved).
