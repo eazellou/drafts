@@ -3,7 +3,7 @@ This fall [we ran a survey about covid precautions](https://blog.bidadance.org/2
 ## Updated Policy
 In short, our policy will not be changing much. We will continue to alternate mask-required and mask-optional evening dances: 1st Sundays will still be mask-optional, and 3rd Sundays will still be mask-required.
 
-In 2025 [we will be adding 4th Sunday afternoon dances](TODO: link here) and these will alternate as well, starting with mask-required in January.
+In 2025 [we will be adding some 4th Sunday afternoon dances](TODO: link here) and these will alternate as well, starting with mask-required in January.
 ## About the Survey
 The survey was open in September 2024, available digitally and also on paper at two dances (one mask-required and one mask-optional). We posted about it on our blog, on social media, included it in our email announcements, and announced it on the mic at both September dances.
 
