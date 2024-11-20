@@ -19,12 +19,12 @@ We'll host these 4th Sunday dances every month in the first half of 2025, with t
 ## Mask Policy
 These new afternoon dances will alternate mask-required and mask-optional per month, starting required in January:
 
-| Month    | Mask Policy |
+| Date    | Mask Policy |
 | -------- | ----------- |
-| January  | Required    |
-| February | Optional    |
-| March    | Required    |
-| June     | Optional    |
+| January 26  | Required    |
+| February 23 | Optional    |
+| March 23   | Required    |
+| June 22    | Optional    |
 
 [More info on our covid policy decision for 2025 is available here](TODO: link to covid post).
 ## Volunteers Needed!
