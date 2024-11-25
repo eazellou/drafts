@@ -9,9 +9,9 @@ We will keep the length of the beginner lesson and the dance the same as our eve
 
 | Time   | Event           |
 | ------ | --------------- |
-| 4:30pm | Beginner Lesson |
-| 5:00pm | Dance Begins    |
-| 8:00pm | Dance Ends      |
+| 4:00pm | Beginner Lesson |
+| 4:30pm | Dance Begins    |
+| 7:30pm | Dance Ends      |
 
 We'll host these 4th Sunday dances every month in the first half of 2025, with two exceptions:
 - **No dance April 27th**, to avoid [NEFFA](https://www.neffa.org/festival-home/)
