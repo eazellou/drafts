@@ -120,8 +120,7 @@ In the interest of transparency, here are the survey results. The wide range of 
 - Enjoyment UP.   Comfort UP,   Safety the same
 - It is difficult to breathe using masks, especially withe it is hot.  Masks ruin social interactions
 - I would come more often
-- Masks optional (not required) is my STRONG preference
-- "Much more connection, joy and comfort.  
+- Masks optional (not required) is my STRONG preference. Much more connection, joy and comfort.  
 - Especially during waltzes"
 - I like the current system, even though I’m sure it’s an extra burden for the organizers. And a frequent cause of complaints from both sides.
 
@@ -146,8 +145,7 @@ In the interest of transparency, here are the survey results. The wide range of 
 - Should you choose to only offer mask-optional dances (I hope not!), please consider trying offering a mask-required line at your dances. While not as good as the entire dance being mask-required, it is still safer than having 50+ people breathe heavily directly into my face during swings — my mask can only do so much! If that line is consistently too short, then I understand doing away with it… but it would be helpful to try.
 - Thank you for polling your community while making this decision!"
 - I’m grateful to BIDA for collecting all of our opinions and especially for standing strong in the face of salty Facebook comments that appear on mask required dances. Thank you for being reasonable and sticking to your decisions that are based on facts and community surveys and not patting a few loud people make you second guess yourselves (publicly at least). Y’all rock and I have faith in you making compassionate decisions!
-- Thank you for being amazing organizers and doing the work needed (even if it isn't fun).
-- "I think it's very unfortunate for those of us who are either immunocompromised or simply can't get the vaccine, to not really be able to participate.
+- Thank you for being amazing organizers and doing the work needed (even if it isn't fun). I think it's very unfortunate for those of us who are either immunocompromised or simply can't get the vaccine, to not really be able to participate.
 - Even if public opinion is that 'covid has passed' or that it's simply not a big deal, public opinion is rarely guided by facts but rather perception.
 - I feel like it is Bidas responsibility to do what is best for the community and not what is easiest, because as it stands the board can look up COVID rates, and make informed decisions based on them.
 - It's the responsibility of the leaders to lead, and not just rely on the 'most people think it's fine'/'lets not rock the boat' philosophy that's been used in the past.
